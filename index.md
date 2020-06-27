@@ -12,3 +12,5 @@ Wegen des großen Erfolgs der Filme beschäftigen sich zahlreiche Romane, Comics
 * Likes to travel
 * Likes very old stuff
 	* Especially old reliquia
+	
+> Professor of Archaeology, expert on the occult, and how does one say it… obtainer of rare antiquities.
